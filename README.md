@@ -1,2 +1,3 @@
-Aloha, I'm Hunhee Choi
-:(
+Aloha, I'm Hunhee Choi  
+:(  
+:)
